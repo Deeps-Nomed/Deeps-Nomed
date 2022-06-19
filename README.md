@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Deeps-Nomed
+- 👀 I’m interested in Web Development, Machine learning, Blockchain, and many other interesting technologies.
+- 🌱 I’m currently learning Web Development.
+- 💞️ I’m looking to collaborate on projects that focus on real world problem solving.
+- 📫 How to reach me : You can reach me on my email omjadhav.1551@gmail.com OR Contact me on my number +91 90498 86607.
